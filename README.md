@@ -3,8 +3,8 @@
 
 <h1 align="center">BCHS Unblocked Games</h1>
 
-https://bchs.pages.dev/
 
+2024-10-28
 
 
 
